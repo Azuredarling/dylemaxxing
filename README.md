@@ -7,7 +7,7 @@
 <img src="https://files.catbox.moe/fwiez5.png" />
 
 　　　　　　　　　　　　« ʚ  darling  dyle  ,  my  heart  belongs  to  you »  “ ᰔᩚ
- 　　　　　　　　　　　　　　 [rentry.co](https://rentry.co/moeyll) ︶ [dni & boundaries](https://rentry.co/fefero)
+ 　　　　　　　　　　　　　　 [rentry.co](https://rentry.co/moeyll) ︶ [dni & boundaries](https://fluffle.cc/parfaith)
 
 <img height="500" src="https://files.catbox.moe/pst1lk.png"/>
 
